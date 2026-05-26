@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-💻 Ingeniero En Desarrollo De Software   
+💻 Ingeniero en desarrollo de software   
 🎮 Fan de los videojuegos y el anime  
 🇲🇽 México
 
